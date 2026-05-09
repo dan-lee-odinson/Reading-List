@@ -9,6 +9,8 @@ by Neil deGrasse Tyson
 ## Atomic Habits: An Easy and Proven Way to Build Good Habits & Break Bad Ones
 by James Clear
 
+*Finished on 5/6/2026*
+
 ## Failure is Not an Option
 by Gene Kranz
 
